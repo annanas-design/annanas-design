@@ -45,7 +45,7 @@ Aujourd’hui, je transforme des données en paysages lisibles, sensibles et int
 ## 🌐 Me retrouver
 
 - GitHub : [@annanas-design](https://github.com/annanas-design)
-- *(Ajoute ton portfolio ou LinkedIn ici si tu veux)*
+- *(https://www.linkedin.com/in/anne-gateau-919915328/)*
 
 ---
 
